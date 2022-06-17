@@ -1,1 +1,0 @@
-# hartytech2-github.io
